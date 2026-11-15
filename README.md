@@ -15,4 +15,6 @@ Every decision matters. Every second counts.
 
 Will you survive the storm?
 
-You can also watch it on YouTube - https://youtu.be/UabRAKhkbrk?si=5k4lGBkQUldZA8aH
+
+Watch On YouTube - https://youtu.be/UabRAKhkbrk?si=fPJGu4aJJReMC_04 (Game Demo)
+                 - https://youtu.be/pvAwX-IFJc4?si=yxNLZuUOYgmjXQU6 (Introduction)
