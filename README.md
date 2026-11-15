@@ -1,8 +1,5 @@
 SOLARIS | Game Demo And Pitch
 
-
-SOLARIS | Official Game Demo Trailer | NASA Space Apps Challenge 2026
-
 ☀️ THE SUN ISN'T YOUR ONLY CHALLENGE. SURVIVAL IS.
 
 An emergency is approaching the Moon.
