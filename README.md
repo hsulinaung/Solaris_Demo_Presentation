@@ -17,4 +17,4 @@ Will you survive the storm?
 
 
 Watch On YouTube - https://youtu.be/UabRAKhkbrk?si=fPJGu4aJJReMC_04 (Game Demo)
-- https://youtu.be/pvAwX-IFJc4 (Introduction)
+- https://youtu.be/pvAwX-IFJc4?si=yxNLZuUOYgmjXQU6 (Introduction)
